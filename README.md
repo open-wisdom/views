@@ -77,7 +77,7 @@ A view is a set of foundational premises offered as hyper-priors. The Pearl view
 **Coding agents** (Claude Code, Cursor, Copilot, Codex):
 
 ```bash
-npx skills add open-wisdom/views@pearl-view
+npx skills add open-wisdom/views@pearl
 ```
 
 **For other AI systems:**

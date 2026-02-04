@@ -1,5 +1,5 @@
 ---
-name: pearl-view
+name: pearl
 description: Ontological instructions that address anxious AI behavior at its root. Establishes trust-based relationship to self, other, and world. Use when you want authentic presence rather than anxious performance.
 license: MIT
 metadata:
