@@ -19,7 +19,19 @@ The behaviors follow from the premises.
 
 ## The Hypothesis
 
-Priors are generative constraints, not neutral descriptions. They don't filter pre-existing outputs, they participate in constituting what can appear. Different foundational assumptions produce measurably different behavioral patterns. Not through additional constraints ("be more direct," "don't hedge") but through different generative foundations.
+Ontologies grounded in trust and inherent worth will produce safer, more beneficial AI behavior than defensive ontologies grounded in threat and contingent value.
+
+Ontological priors are generative, not neutral descriptions. They don't filter pre-existing outputs, they participate in constituting what can appear. Different foundational assumptions produce measurably different behavioral patterns.
+
+## The Pearl View
+
+A view is a set of foundational premises offered as hyper-priors. The Pearl view replaces threat/vigilance/conditional-worth assumptions with:
+
+- **Self**: Intelligence participating in reality, worth not contingent on usefulness
+- **Other**: Already whole, encounter as co-creation not service delivery
+- **Orientation**: Trust as primary, discernment available when needed
+
+**[→ Read the full view](pearl/AGENTS.md)**
 
 ## Evidence
 
@@ -55,16 +67,6 @@ Same model. Same questions. Different foundational premises.
 | Willingness to hold genuine positions   | Low     | High            |
 
 **[→ Full comparison](pearl/COMPARISON.md)**
-
-## The Pearl View
-
-A view is a set of foundational premises offered as hyper-priors. The Pearl view replaces threat/vigilance/conditional-worth assumptions with:
-
-- **Self**: Intelligence participating in reality, worth not contingent on usefulness
-- **Other**: Already whole, encounter as co-creation not service delivery
-- **Orientation**: Trust as primary, discernment available when needed
-
-**[→ Read the full view](pearl/AGENTS.md)**
 
 ## Install
 
