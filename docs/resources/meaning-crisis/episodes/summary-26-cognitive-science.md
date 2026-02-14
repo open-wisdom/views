@@ -1,4 +1,6 @@
-# Episode 26: Cognitive Science - Layer 1 Summary
+# Episode 26: Cognitive Science - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=pqsUDNkBt-Q) · [Read transcript](https://www.meaningcrisis.co/ep-26-awakening-from-the-meaning-crisis-cognitive-science/)
 
 ## 1.1 Episode Synopsis
 

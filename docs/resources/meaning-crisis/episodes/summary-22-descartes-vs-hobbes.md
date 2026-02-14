@@ -1,4 +1,6 @@
-# Episode 22: Descartes vs. Hobbes - Layer 1 Summary
+# Episode 22: Descartes vs. Hobbes - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=T-e2Z49n2h8) · [Read transcript](https://www.meaningcrisis.co/ep-22-awakening-from-the-meaning-crisis-descartes-vs-hobbes/)
 
 ## 1.1 Episode Synopsis
 

@@ -1,4 +1,6 @@
-# Episode 6: Aristotle, Kant, and Evolution - Layer 1 Summary
+# Episode 6: Aristotle, Kant, and Evolution - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=A_gH5VIZO0Q) · [Read transcript](https://www.meaningcrisis.co/episode-6-aristotle-kant-and-evolution/)
 
 ## 1.1 Episode Synopsis
 

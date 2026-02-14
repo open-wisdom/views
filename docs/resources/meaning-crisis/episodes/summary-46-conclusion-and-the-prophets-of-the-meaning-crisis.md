@@ -1,4 +1,6 @@
-# Episode 46: Conclusion and the Prophets of the Meaning Crisis - Layer 1 Summary
+# Episode 46: Conclusion and the Prophets of the Meaning Crisis - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=POY3p9TpdD0) · [Read transcript](https://www.meaningcrisis.co/ep-46-awakening-from-the-meaning-crisis-conclusion-and-the-prophets-of-the-meaning-crisis/)
 
 ## 1.1 Episode Synopsis
 

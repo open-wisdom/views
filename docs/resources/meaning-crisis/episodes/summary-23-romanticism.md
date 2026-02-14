@@ -1,4 +1,6 @@
-# Episode 23: Romanticism - Layer 1 Summary
+# Episode 23: Romanticism - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=Noc1OH0CUBc) · [Read transcript](https://www.meaningcrisis.co/ep-23-awakening-from-the-meaning-crisis-romanticism/)
 
 ## 1.1 Episode Synopsis
 

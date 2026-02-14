@@ -1,4 +1,6 @@
-# Episode 39: The Religion of No Religion - Layer 1 Summary
+# Episode 39: The Religion of No Religion - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=440NV0eer00) · [Read transcript](https://www.meaningcrisis.co/ep-39-awakening-from-the-meaning-crisis-the-religion-of-no-religion/)
 
 ## 1.1 Episode Synopsis
 

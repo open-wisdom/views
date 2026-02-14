@@ -1,4 +1,6 @@
-# Episode 48: Corbin and the Divine Double - Layer 1 Summary
+# Episode 48: Corbin and the Divine Double - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=mrnpZhWqdcA) · [Read transcript](https://www.meaningcrisis.co/ep-48-awakening-from-the-meaning-crisis-corbin-and-the-divine-double/)
 
 ## 1.1 Episode Synopsis
 

@@ -1,4 +1,6 @@
-# Episode 18: Plotinus and Neoplatonism - Layer 1 Summary
+# Episode 18: Plotinus and Neoplatonism - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=ITfUCL1yTQQ) · [Read transcript](https://www.meaningcrisis.co/ep-18-awakening-from-the-meaning-crisis-plotinus-and-neoplatonism/)
 
 ## 1.1 Episode Synopsis
 

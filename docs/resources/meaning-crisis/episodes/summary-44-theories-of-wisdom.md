@@ -1,4 +1,6 @@
-# Episode 44: Theories of Wisdom - Layer 1 Summary
+# Episode 44: Theories of Wisdom - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=cK5Npv-OdAE) · [Read transcript](https://www.meaningcrisis.co/ep-44-awakening-from-the-meaning-crisis-theories-of-wisdom/)
 
 ## 1.1 Episode Synopsis
 

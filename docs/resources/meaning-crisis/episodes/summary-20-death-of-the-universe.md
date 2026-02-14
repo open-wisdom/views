@@ -1,4 +1,6 @@
-# Episode 20: Death of the Universe - Layer 1 Summary
+# Episode 20: Death of the Universe - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=lWrqdUo5W4Q) · [Read transcript](https://www.meaningcrisis.co/ep-20-awakening-from-the-meaning-crisis-death-of-the-universe/)
 
 **Awakening from the Meaning Crisis**
 

@@ -1,4 +1,6 @@
-# Episode 27: Problem Formulation - Layer 1 Summary
+# Episode 27: Problem Formulation - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=9j5O-tnaFzE) · [Read transcript](https://www.meaningcrisis.co/ep-27-awakening-from-the-meaning-crisis-problem-formulation/)
 
 ## 1.1 Episode Synopsis
 

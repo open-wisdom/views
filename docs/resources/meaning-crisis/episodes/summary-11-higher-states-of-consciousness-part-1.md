@@ -1,5 +1,6 @@
 # Episode 11: Higher States of Consciousness, Part 1
-## Layer 1 Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=39NpjQDtqNw) · [Read transcript](https://www.meaningcrisis.co/higher-states-of-consciousness-part-1/)
 
 ### 1.1 Episode Synopsis
 

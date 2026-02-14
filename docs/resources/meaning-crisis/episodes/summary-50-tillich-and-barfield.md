@@ -1,4 +1,6 @@
-# Episode 50: Tillich and Barfield - Layer 1 Summary
+# Episode 50: Tillich and Barfield - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=iu9fa4TkWE0) · [Read transcript](https://www.meaningcrisis.co/ep-50-awakening-from-the-meaning-crisis-tillich-and-barfield/)
 
 ## 1.1 Episode Synopsis
 

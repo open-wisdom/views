@@ -1,4 +1,6 @@
-# Episode 32: RR in the Brain, Insight, and Consciousness - Layer 1 Summary
+# Episode 32: RR in the Brain, Insight, and Consciousness - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=IZyWuD9UqI4) · [Read transcript](https://www.meaningcrisis.co/ep-32-awakening-from-the-meaning-crisis-rr-in-the-brain-insight-and-consciousness/)
 
 ## 1.1 Episode Synopsis
 

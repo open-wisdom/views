@@ -1,4 +1,6 @@
-# Episode 43: Wisdom and Virtue - Layer 1 Summary
+# Episode 43: Wisdom and Virtue - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=EUcFqb-DxOA) · [Read transcript](https://www.meaningcrisis.co/ep-43-awakening-from-the-meaning-crisis-wisdom-and-virtue/)
 
 ## 1.1 Episode Synopsis
 

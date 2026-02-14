@@ -1,8 +1,6 @@
 # Episode 8: The Buddha and "Mindfulness"
 
-**Awakening from the Meaning Crisis - Layer 1 Summary**
-
----
+[Watch on YouTube](https://www.youtube.com/watch?v=EWumJSBqXa8) · [Read transcript](https://www.meaningcrisis.co/episode-8-the-buddha-and-mindfulness/)
 
 ## 1.1 Episode Synopsis
 

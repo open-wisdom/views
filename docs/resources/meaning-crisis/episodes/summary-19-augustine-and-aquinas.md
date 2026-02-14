@@ -1,4 +1,6 @@
-# Episode 19: Augustine and Aquinas - Layer 1 Summary
+# Episode 19: Augustine and Aquinas - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=mRh4lwtgfVE) · [Read transcript](https://www.meaningcrisis.co/ep-19-awakening-from-the-meaning-crisis-augustine-and-aquin/)
 
 ## 1.1 Episode Synopsis
 

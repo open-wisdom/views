@@ -1,4 +1,6 @@
-# Episode 38: Agape and 4E Cognitive Science - Layer 1 Summary
+# Episode 38: Agape and 4E Cognitive Science - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=xRjPy8c44vI) · [Read transcript](https://www.meaningcrisis.co/ep-38-awakening-from-the-meaning-crisis-agape-and-4e-cognitive-science/)
 
 ## 1.1 Episode Synopsis
 

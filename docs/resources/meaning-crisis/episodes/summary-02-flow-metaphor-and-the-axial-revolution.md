@@ -1,5 +1,6 @@
 # Episode 2: Flow, Metaphor, and the Axial Revolution
-## Layer 1 Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=aF9HeXg65AE) · [Read transcript](https://www.meaningcrisis.co/episode-2-flow-metaphor-and-the-axial-revolution/)
 
 ### 1.1 Episode Synopsis
 

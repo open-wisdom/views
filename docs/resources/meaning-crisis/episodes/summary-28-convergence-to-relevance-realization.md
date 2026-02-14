@@ -1,5 +1,6 @@
 # Episode 28: Convergence to Relevance Realization
-## Layer 1 Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=Yp6F80Nx0lc) · [Read transcript](https://www.meaningcrisis.co/ep-28-awakening-from-the-meaning-crisis-convergence-to-relevance-realization/)
 
 ### 1.1 Episode Synopsis
 

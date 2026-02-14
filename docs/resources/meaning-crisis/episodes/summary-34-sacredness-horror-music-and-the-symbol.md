@@ -1,5 +1,6 @@
 # Episode 34: Sacredness: Horror, Music, and the Symbol
-## Layer 1 Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=KoqibFwvQJ4) · [Read transcript](https://www.meaningcrisis.co/ep-34-awakening-from-the-meaning-crisis-sacredness-horror-music-and-the-symbol/)
 
 ### 1.1 Episode Synopsis
 

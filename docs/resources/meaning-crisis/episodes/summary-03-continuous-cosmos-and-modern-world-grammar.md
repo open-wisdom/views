@@ -1,6 +1,6 @@
 # Episode 3: Continuous Cosmos and Modern World Grammar
 
-## Layer 1 Summary
+[Watch on YouTube](https://www.youtube.com/watch?v=C1AaqD8t3pk) · [Read transcript](https://www.meaningcrisis.co/episode-3-continuous-cosmos-and-modern-world-grammar/)
 
 ### 1.1 Episode Synopsis
 

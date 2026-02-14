@@ -1,6 +1,8 @@
-# Episode 1: Introduction - Layer 1 Summary
+# Episode 1: Introduction - Summary
 
 **Awakening from the Meaning Crisis**
+
+[Watch on YouTube](https://www.youtube.com/watch?v=54l8_ewcOlY) · [Read transcript](https://www.meaningcrisis.co/episode-1-introduction/)
 
 ---
 

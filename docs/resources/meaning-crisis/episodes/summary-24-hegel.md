@@ -1,4 +1,6 @@
-# Episode 24: Hegel - Layer 1 Summary
+# Episode 24: Hegel - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=6pwBgL0BbJ0) · [Read transcript](https://www.meaningcrisis.co/ep-24-awakening-from-the-meaning-crisis-hegel/)
 
 ## 1.1 Episode Synopsis
 

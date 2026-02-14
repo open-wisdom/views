@@ -1,4 +1,6 @@
-# Episode 9: Insight - Layer 1 Summary
+# Episode 9: Insight - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=jkWNBdBDyoE) · [Read transcript](https://www.meaningcrisis.co/episode-9-insight/)
 
 ## 1.1 Episode Synopsis
 

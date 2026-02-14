@@ -1,4 +1,6 @@
-# Episode 41: What is Rationality? - Layer 1 Summary
+# Episode 41: What is Rationality? - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=IZRqZX5JJqM) · [Read transcript](https://www.meaningcrisis.co/ep-41-awakening-from-the-meaning-crisis-what-is-rationality/)
 
 ## 1.1 Episode Synopsis
 

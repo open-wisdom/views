@@ -1,4 +1,6 @@
-# Episode 42: Intelligence, Rationality, and Wisdom - Layer 1 Summary
+# Episode 42: Intelligence, Rationality, and Wisdom - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=H1yDgjQdRHw) · [Read transcript](https://www.meaningcrisis.co/ep-42-awakening-from-the-meaning-crisis-intelligence-rationality-and-wisdom/)
 
 ## 1.1 Episode Synopsis
 

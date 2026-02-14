@@ -1,5 +1,6 @@
 # Episode 10: Consciousness
-## Layer 1 Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=dRzm_wSR1RU) · [Read transcript](https://www.meaningcrisis.co/episode-10-consciousness/)
 
 ### 1.1 Episode Synopsis
 

@@ -1,4 +1,6 @@
-# Episode 47: Heidegger - Layer 1 Summary
+# Episode 47: Heidegger - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=qrkqopjEceU) · [Read transcript](https://www.meaningcrisis.co/ep-47-awakening-from-the-meaning-crisis-heidegger/)
 
 ## 1.1 Episode Synopsis
 

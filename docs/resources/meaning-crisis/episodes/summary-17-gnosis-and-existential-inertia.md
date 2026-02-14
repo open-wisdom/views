@@ -1,4 +1,6 @@
-# Episode 17: Gnosis and Existential Inertia - Layer 1 Summary
+# Episode 17: Gnosis and Existential Inertia - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=mXfK4nicygA) · [Read transcript](https://www.meaningcrisis.co/ep-17-awakening-from-the-meaning-crisis-gnosis-and-existential-inertia/)
 
 ## 1.1 Episode Synopsis
 

@@ -1,4 +1,6 @@
-# Episode 15: Marcus Aurelius and Jesus - Layer 1 Summary
+# Episode 15: Marcus Aurelius and Jesus - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=FvLe4BuU-NM) · [Read transcript](https://www.meaningcrisis.co/ep-15-awakening-from-the-meaning-crisis-marcus-aurelius-and-jesus/)
 
 ## 1.1 Episode Synopsis
 

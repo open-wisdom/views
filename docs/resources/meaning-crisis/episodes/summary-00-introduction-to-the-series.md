@@ -1,5 +1,7 @@
 # Episode 00: Introduction to the Meaning Crisis Series
 
+[Watch on YouTube](https://www.youtube.com/watch?v=ncd6q9uIEdw) · [Read transcript](https://www.meaningcrisis.co/the-introduction-to-the-meaning-crisis-series/)
+
 ## 1.1 Episode Synopsis
 
 Episode 00 frames the existential and cultural terrain that the series will navigate. Vervaeke opens by diagnosing our contemporary condition: escalating rates of anxiety, depression, and suicide signal a mental health crisis that is itself symptom of something deeper — a "meaning crisis." This crisis manifests as a pervasive sense of disconnection: from ourselves, from each other, from the world, and from any viable future. It expresses itself culturally as an "ocean of bullshit" — a generalized epistemic and existential disorientation in which we can no longer distinguish signal from noise, truth from fabrication, genuine meaning from parasitic substitutes.

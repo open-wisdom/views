@@ -1,4 +1,6 @@
-# Episode 16: Christianity and Agape - Layer 1 Summary
+# Episode 16: Christianity and Agape - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=Jbwm03djuJc) · [Read transcript](https://www.meaningcrisis.co/ep-16-awakening-from-the-meaning-crisis-christianity-and-agape/)
 
 ## 1.1 Episode Synopsis
 

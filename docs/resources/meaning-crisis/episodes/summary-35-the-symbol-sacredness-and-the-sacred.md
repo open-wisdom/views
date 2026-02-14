@@ -1,4 +1,6 @@
-# Episode 35: The Symbol, Sacredness, and the Sacred - Layer 1 Summary
+# Episode 35: The Symbol, Sacredness, and the Sacred - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=rpivf1SoEdc) · [Read transcript](https://www.meaningcrisis.co/ep-35-awakening-from-the-meaning-crisis-the-symbol-sacredness-and-the-sacred/)
 
 ## 1.1 Episode Synopsis
 

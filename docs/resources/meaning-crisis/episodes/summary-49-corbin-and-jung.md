@@ -1,4 +1,6 @@
-# Episode 49: Corbin and Jung - Layer 1 Summary
+# Episode 49: Corbin and Jung - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=kkykBqApP4A) · [Read transcript](https://www.meaningcrisis.co/ep-49-awakening-from-the-meaning-crisis-corbin-and-jung/)
 
 ## 1.1 Episode Synopsis
 

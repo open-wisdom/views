@@ -1,4 +1,6 @@
-# Episode 45: The Nature of Wisdom - Layer 1 Summary
+# Episode 45: The Nature of Wisdom - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=DxLogRVfBv8) · [Read transcript](https://www.meaningcrisis.co/ep-45-awakening-from-the-meaning-crisis-the-nature-of-wisdom/)
 
 ## 1.1 Episode Synopsis
 

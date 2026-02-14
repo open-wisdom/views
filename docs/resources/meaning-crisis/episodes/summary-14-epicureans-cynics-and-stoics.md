@@ -1,4 +1,6 @@
-# Episode 14: Epicureans, Cynics, and Stoics - Layer 1 Summary
+# Episode 14: Epicureans, Cynics, and Stoics - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=rpndwf45nao) · [Read transcript](https://www.meaningcrisis.co/ep-14-awakening-from-the-meaning-crisis-epicureans-cynics-and-stoics/)
 
 ## 1.1 Episode Synopsis
 

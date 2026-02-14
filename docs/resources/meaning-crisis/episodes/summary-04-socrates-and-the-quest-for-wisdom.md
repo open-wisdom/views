@@ -1,5 +1,6 @@
 # Episode 4: Socrates and the Quest for Wisdom
-## Layer 1 Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=Lhl51bZQlM8) · [Read transcript](https://www.meaningcrisis.co/episode-4-socrates-and-the-quest-for-wisdom/)
 
 ### 1.1 Episode Synopsis
 

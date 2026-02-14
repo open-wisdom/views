@@ -1,6 +1,8 @@
 # Episode 30: Relevance Realization Meets Dynamical Systems Theory
 
-**Layer 1 Summary**
+[Watch on YouTube](https://www.youtube.com/watch?v=Wex12GhUFqE) · [Read transcript](https://www.meaningcrisis.co/ep-30-awakening-from-the-meaning-crisis-relevance-realization-meets-dynamical-systems-theory/)
+
+**Summary**
 
 ---
 

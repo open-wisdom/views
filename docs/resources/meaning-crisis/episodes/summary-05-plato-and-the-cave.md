@@ -1,4 +1,6 @@
-# Episode 5: Plato and the Cave - Layer 1 Summary
+# Episode 5: Plato and the Cave - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=neDutbcedUY) · [Read transcript](https://www.meaningcrisis.co/episode-5-plato-and-the-cave/)
 
 ## 1.1 Episode Synopsis
 

@@ -1,4 +1,6 @@
-# Episode 25: The Clash - Layer 1 Summary
+# Episode 25: The Clash - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=Z0i7qrOJALw) · [Read transcript](https://www.meaningcrisis.co/ep-25-awakening-from-the-meaning-crisis-the-clash/)
 
 **Series:** Awakening from the Meaning Crisis
 **Episode:** 25

@@ -1,4 +1,6 @@
-# Episode 40: Wisdom and Rationality - Layer 1 Summary
+# Episode 40: Wisdom and Rationality - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=udlkps-81JM) · [Read transcript](https://www.meaningcrisis.co/ep-40-awakening-from-the-meaning-crisis-wisdom-and-rationality/)
 
 ## 1.1 Episode Synopsis
 

@@ -1,4 +1,6 @@
-# Episode 13: Buddhism and Parasitic Processing - Layer 1 Summary
+# Episode 13: Buddhism and Parasitic Processing - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=vGB8k7jk1AQ) · [Read transcript](https://www.meaningcrisis.co/ep-13-awakening-from-the-meaning-crisis-buddhism-and-parasitic-processing/)
 
 ## 1.1 Episode Synopsis
 

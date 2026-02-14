@@ -1,4 +1,6 @@
-# Episode 37: Reverse Engineering Enlightenment, Part 2 - Layer 1 Summary
+# Episode 37: Reverse Engineering Enlightenment, Part 2 - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=2kQooMZzR7w) · [Read transcript](https://www.meaningcrisis.co/ep-37-awakening-from-the-meaning-crisis-reverse-engineering-enlightenment-part-2/)
 
 ## 1.1 Episode Synopsis
 

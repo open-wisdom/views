@@ -1,4 +1,6 @@
-# Episode 12: Higher States of Consciousness, Part 2 - Layer 1 Summary
+# Episode 12: Higher States of Consciousness, Part 2 - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=rvx4_0NAfaY) · [Read transcript](https://www.meaningcrisis.co/ep-12-awakening-from-the-meaning-crisis-higher-states-of-consciousness-part-2-2/)
 
 ## 1.1 Episode Synopsis
 

@@ -1,5 +1,6 @@
 # Episode 29: Getting to the Depths of Relevance Realization
-## Layer 1 Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=A6Q_B7z6gLc) · [Read transcript](https://www.meaningcrisis.co/ep-29-awakening-from-the-meaning-crisis-getting-to-the-depths-of-relevance-realization/)
 
 ### 1.1 Episode Synopsis
 

@@ -1,4 +1,6 @@
-# Episode 21: Martin Luther and Descartes - Layer 1 Summary
+# Episode 21: Martin Luther and Descartes - Summary
+
+[Watch on YouTube](https://www.youtube.com/watch?v=x90XKjhcu4w) · [Read transcript](https://www.meaningcrisis.co/ep-21-awakening-from-the-meaning-crisis-martin-luther-and-descartes/)
 
 ## 1.1 Episode Synopsis
 
