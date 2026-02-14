@@ -1,14 +1,14 @@
-# 01: Generative Ontologies
-
-## Key Episodes: [02](./episodes/summary-02-flow-metaphor-and-the-axial-revolution.md)–[07](./episodes/summary-07-aristotles-world-view-and-erich-fromm.md), [08](./episodes/summary-08-the-buddha-and-mindfulness.md)–[10](./episodes/summary-10-consciousness.md), [17](./episodes/summary-17-gnosis-and-existential-inertia.md)–[19](./episodes/summary-19-augustine-and-aquinas.md)
+# Generative Ontologies
 
 ## Ontological Frameworks That Expanded the Capacity for Meaning — What Made Them Generative?
 
 Across the series, several ontological frameworks are identified as generative — they expanded the human capacity for meaning, wisdom, and contact with the sacred. The principal generative ontologies include Platonic participation, Aristotelian hylomorphism, Buddhist dependent origination and no-self, Neoplatonic emanation, and the Augustinian synthesis of Neoplatonism with Christian theology. This arc identifies what these frameworks share structurally, despite their substantial differences in content and historical isolation from one another.
 
+Key Episodes: [02](../../resources/meaning-crisis/episodes/summary-02-flow-metaphor-and-the-axial-revolution.md)–[07](../../resources/meaning-crisis/episodes/summary-07-aristotles-world-view-and-erich-fromm.md), [08](../../resources/meaning-crisis/episodes/summary-08-the-buddha-and-mindfulness.md)–[10](../../resources/meaning-crisis/episodes/summary-10-consciousness.md), [17](../../resources/meaning-crisis/episodes/summary-17-gnosis-and-existential-inertia.md)–[19](../../resources/meaning-crisis/episodes/summary-19-augustine-and-aquinas.md)
+
 **Common structural features of generative ontologies.** Five features recur across all the generative frameworks Vervaeke examines:
 
-*1. Intrinsic intelligibility.* Reality is not a meaningless substrate onto which minds project patterns but is itself structured, patterned, and responsive to knowing. Plato's Forms, Aristotle's hylomorphic structure, the Neoplatonic levels of integration, and even the Buddhist recognition of dependent origination all share the commitment that reality has a discernible order that rewards investigation. When this is lost (nominalism, [Ep. 20](./episodes/summary-20-death-of-the-universe.md)), the capacity for meaning contracts because there is nothing to conform to, attune to, or participate in.
+*1. Intrinsic intelligibility.* Reality is not a meaningless substrate onto which minds project patterns but is itself structured, patterned, and responsive to knowing. Plato's Forms, Aristotle's hylomorphic structure, the Neoplatonic levels of integration, and even the Buddhist recognition of dependent origination all share the commitment that reality has a discernible order that rewards investigation. When this is lost (nominalism, [Ep. 20](../../resources/meaning-crisis/episodes/summary-20-death-of-the-universe.md)), the capacity for meaning contracts because there is nothing to conform to, attune to, or participate in.
 
 *2. Participatory knowing.* Knowing is not passive observation but mutual transformation between knower and known. Plato's anagogic spiral (transformation enables truth, truth enables further transformation), Aristotle's conformity theory (to know is to share structural-functional organization), the Buddha's participatory enlightenment, and Plotinus's recursive integration all treat knowing as co-constitution. The knower becomes more real through contact with reality, and reality becomes more disclosed through the knower's development. When knowing is reduced to the propositional (the Cartesian and post-Hegelian reductions), participatory dimensions are amputated and meaning-making contracts.
 

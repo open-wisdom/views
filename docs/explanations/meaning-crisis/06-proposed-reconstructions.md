@@ -1,6 +1,6 @@
 # 05: Proposed Reconstructions
 
-## Key Episodes: [33](./episodes/summary-33-the-spirituality-of-rr-wonder-awe-mystery-sacredness.md)–[35](./episodes/summary-35-the-symbol-sacredness-and-the-sacred.md), [39](./episodes/summary-39-the-religion-of-no-religion.md), [40](./episodes/summary-40-wisdom-and-rationality.md)–[45](./episodes/summary-45-the-nature-of-wisdom.md), [46](./episodes/summary-46-conclusion-and-the-prophets-of-the-meaning-crisis.md)–[50](./episodes/summary-50-tillich-and-barfield.md)
+## Key Episodes: [33](../../resources/meaning-crisis/episodes/summary-33-the-spirituality-of-rr-wonder-awe-mystery-sacredness.md)–[35](../../resources/meaning-crisis/episodes/summary-35-the-symbol-sacredness-and-the-sacred.md), [39](../../resources/meaning-crisis/episodes/summary-39-the-religion-of-no-religion.md), [40](../../resources/meaning-crisis/episodes/summary-40-wisdom-and-rationality.md)–[45](../../resources/meaning-crisis/episodes/summary-45-the-nature-of-wisdom.md), [46](../../resources/meaning-crisis/episodes/summary-46-conclusion-and-the-prophets-of-the-meaning-crisis.md)–[50](../../resources/meaning-crisis/episodes/summary-50-tillich-and-barfield.md)
 
 ## What Vervaeke and the "Prophets" Propose as Viable Ontological Stances — Design Principles for a Generative Ontology
 
