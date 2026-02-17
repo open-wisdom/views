@@ -8,12 +8,6 @@ Synthesized from four presentations by [Shamil Chandaria](https://www.youtube.co
 
 # Predictive Processing and Generative Ontology: A Synthesis
 
-## Shamil Chandaria, DeepMind
-
-Synthesized from four presentations on the Bayesian brain, free energy principle, meditation, and non-dual awareness.
-
----
-
 ## Part I: The Core Framework
 
 ### The Fundamental Problem
